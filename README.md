@@ -1,0 +1,2 @@
+# SrinidhiKasam_Task_and_Assment_-IN226124402_Innomatics-
+Advance_Gen_AI_Intership
